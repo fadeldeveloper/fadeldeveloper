@@ -1,6 +1,6 @@
 # Who Am I?
 
-![Profile Photo](https://telegra.ph/file/5edaf35eb9ea2c9b4d6f5.png)
+![Profile Photo](https://files.catbox.moe/xxkdgj.png)
 
 > *"Jika tidak rusak, jangan perbaiki; jika bisa lebih baik, selalu perbaiki."*
 
