@@ -1,6 +1,6 @@
 # Who Am I?
 
-![Profile Photo](https://files.catbox.moe/xxkdgj.png)
+![Profile Photo](https://files.catbox.moe/5un2gr.png)
 
 > *"Jika tidak rusak, jangan perbaiki; jika bisa lebih baik, selalu perbaiki."*
 
